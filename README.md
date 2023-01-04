@@ -6,4 +6,4 @@ Cualquier consulta que tengas  y/o opinion del mismo, estaré encantado de leert
 
 Te dejo mi correo  adjunto por si deseas ponerte en contacto conmigo.
 
-jesusantiago420@gmail.com
+juandavidvalma0@gmail.com
